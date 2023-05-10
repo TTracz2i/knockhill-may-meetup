@@ -9,7 +9,7 @@ It's round 2 for the KMSC and Scottish Championship races and the return of the 
 * Gate opens at 8am
 
 # Date & Time
-### 27th May 2023 9:15AM - 14:00PM
+### 27th May 2023 10:00AM - 14:00PM
 
 # Location
 ### Knockhill Racing Circuit
